@@ -50,3 +50,10 @@ Base USDC tips keep the grind going:
 ## License
 
 MIT
+
+## Buy today's USDC lanes snapshot ($3)
+
+https://shieldz.cash/unlock/SUxX9gr_Yvxl8dQVbBQm
+
+Tips: https://shieldz.cash/tip/tip-d2599a4d16a6f4b0
+
